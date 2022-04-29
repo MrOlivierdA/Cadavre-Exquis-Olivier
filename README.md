@@ -9,4 +9,5 @@ Voyons ce que me reservera, de mains en mains, poches, banque...
 
 Où vais je donc atterrir ?!
 
-Pauvre petite pièce que je suis, trimballée au grès des vents! Mais je n'ai peur de rien car mon courage est à la hauteur de tous les défis!
+Pauvre petite pièce que je suis, trimballée au grès des vents! Mais je n'ai peur de rien car mon courage est à la hauteur de tous les défis!  
+A ma façon, je suis utile ! J'aide certaines personnes plus que d'autres mais tout le monde à besoin de moi. Car, et oui, sans moi plus rien ne tourne, plus rien ne change de main alors j'accepte mon destin et de mains en mains, poches, banques je continue de voyager.
